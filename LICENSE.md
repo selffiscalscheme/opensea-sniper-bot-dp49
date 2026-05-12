@@ -1,4 +1,4 @@
-# 
+# quantitative nft trading bot | stop-loss + proxy-transactions offers the most advanced nft trading bot, with stop-loss and proxy-transactions. Ideal for professional NFT traders
 
 
 
